@@ -12,7 +12,8 @@ Thanks so much for reaching out. I’m always interested in hearing about what n
 It does however mean that I don’t have the time to hop on a call with everyone who reaches out. A lot of the time, incoming messages represent a very poor fit indeed.
 
 I would love to continue the conversation, but before I do, I’d like to know the level of seniority that you’re looking for.
-Can you send along the company name, job description, details on the project you are looking to staff, and total compensation (salary, bonuses / stock) details for the role you’re reaching out in reference to? Is it possible to work remotely full-time or part-time?
+Can you send along the company name, job description, details on the project you are looking to staff, and total compensation (salary, bonuses / stock) details for the role you’re reaching out in reference to?
+Is it possible to work remotely full-time or part-time?
 
 While I very much appreciate the fact that exceptionally talented and engaged recruiters reach out consistently, sorting serious and high quality opportunities from spam would be a full time job without an autoresponder.
 In the absence of detailed information regarding the nature of the opportunity in question, I will be unavailable for further discussion. Thanks again for reaching out!
