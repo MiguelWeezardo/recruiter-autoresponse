@@ -38,7 +38,7 @@ Czy jest możliwość pracy zdalnej w pełnym lub częściowym zakresie?
 
 Bardzo mi pochlebia częsty kontakt ze strony wyjątkowo utalentowanych i zaangażowanych rekruterów, jednak branie pod uwagę ofert bez pełnej informacji byłoby zbyt czasochłonne, stąd szablonowa odpowiedź z mojej strony. W przypadku braku szczegółów tej oferty będę zmuszony zakończyć tę dyskusję. 
 
-Dziękuję bardzo za kontakt i mam nadzieję dowiedzieć się więcej,
+Bardzo dziękuję za kontakt i mam nadzieję dowiedzieć się więcej,
 
 Michał
 ```
